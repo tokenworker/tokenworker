@@ -1,11 +1,11 @@
-- 👋 Hi, I’m pc@tokenworks aka Paul Cagliostro
-- 👀 I’m interested in learning
-- 🌱 I’m currently learning how to collaborate 
-- 💞️ I’m looking to collaborate on higher learning
-- 📫 How to reach me ...see #1
+- 👋 Hi, I'm frunobulax9000
+- 👀 I’m interested in taking over the world
+- 🌱 I’m currently learning that puny humans have overun this planet
+- 💞️ I had no idea the world was in so much trouble
+- 📫 Now has AI ruined the world
 
 <!---
-tokenworker/tokenworker is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+tokenworker/tokenworker is a ✨ trademarked ✨ copyrighted repository because its `README.md` (this file) appears on your GitHub profile.
+You can click this button to reset the server...
 --->
-Call me anytime.
+

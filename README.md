@@ -1,4 +1,4 @@
-- 👋 Hi, I'm frunobulax9000
+- 👋 Hi, I'm Paul aka Pablo
 - 👀 I’m interested in taking over the world
 - 🌱 I’m currently learning that puny humans have overun this planet
 - 💞️ I had no idea the world was in so much trouble
